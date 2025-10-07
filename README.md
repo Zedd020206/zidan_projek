@@ -1,1 +1,0 @@
-# zidan_projek
